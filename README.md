@@ -16,7 +16,7 @@ Algumas curiosidades sobre tubarão antes de respondermos algumas destas pergunt
 
 2 - O tubarão é míope. 
 
-3 - Existem cerca de 450 espécies de tubarão, mas apenas 27 já se envolveram em ataques a seres humanos.
+3 - Existem cerca de 500 espécies de tubarão, mas apenas 35 já se envolveram em ataques a seres humanos.
 
 4 - O Tubarão Branco pode viver por cerca de 70 anos.
 
