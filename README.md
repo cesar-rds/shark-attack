@@ -5,9 +5,9 @@
 
 ### RESUMO
 
-Ninguém quer arrumar uma briga com o "Rei dos mares", mas seguindo o ditado popular: "Quando um não quer, dois não brigam",
-como poderíamos evitar esse confronto tão desigual? Existiria algum país com maior ocorrencia de ataques? E os ataques 
-com certeza devem ser fatais, certo? Ou não? Qual as chances de escapar? 
+Ninguém quer arrumar uma briga com o "Rei dos mares", seguindo o ditado popular: "Quando um não quer, dois não brigam",
+mas existe alguma forma de evitar esse confronto tão desigual? Existiria algum país com maior ocorrencia de ataques? E os ataques 
+com certeza devem ser fatais, certo? Ou não? Qual as chances de escapar? E qual genero sofre mais ataques?
 Algumas curiosidades sobre tubarão antes de respondermos algumas destas perguntas.
 
 ### 5 - CURIOSIDADES 🦈
