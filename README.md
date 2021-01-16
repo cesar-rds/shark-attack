@@ -21,7 +21,7 @@ Algumas curiosidades sobre tubarão antes de respondermos algumas destas pergunt
 4 - O Tubarão Branco pode viver por cerca de 70 anos.
 
 5 - Os tubarões fazem uma espécie de "mordida-teste", que consiste em morder algo para ver se é comida. 
-Se ele percebem que é diferente do que costumam comer abandonam! 
+Se eles percebem que é diferente do que costumam comer, abandonam! 
 
 ### PROCESSO 💻
 
